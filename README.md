@@ -1,5 +1,5 @@
 wip (i dont think i'll finish this)
-- you can call me sawako, or by my favorite characters, idm
+- you can call me sawako(mainly what im known as), or by my favorite characters, etcetc idm
 - moroccan egyptian
 - basic dni criteria
 - focused interests currently: Konketsu no Karekore, Meiyo, Kakizaki Yuta (I have more, im just focused on these interests atm)
