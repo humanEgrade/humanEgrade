@@ -5,4 +5,4 @@
 - https://en.pronouns.page/@meiyonad
   ~~~
   extra: im very forgetful and a bit awkward.. yea, but idm interactions most of the time
-  note: I'll sometimes use shortened names as signs for stuff like colormytree (currently 'swkou' or 'swk')
+  I'll sometimes use shortcuts of my name for stuff like colormytree
