@@ -9,4 +9,4 @@
 - Spotify links!! 
   - [Platform 4 album](https://open.spotify.com/album/3JyxUkZuUZWh9EVOXxY9g2?si=veIxuRuiSRSds8XyHMbSUg)
   - [goat in the sheep album](https://open.spotify.com/album/1cAsOL7IYDQ1oN5lcHfODl?si=SWxga4usStGjxj1BgKU4yQ) + [POP SOS album](https://open.spotify.com/album/1ACDDPrYJOLfcNupnBz1CT?si=4ZmxfqVBQeOz8h3TBapLgw)
-  - [My Profile + Playlist](https://open.spotify.com/user/315euavfnk44afknjsrbqxvzqptm?si=5989034d91444023)
+  - [My Profile](https://open.spotify.com/user/315euavfnk44afknjsrbqxvzqptm?si=5989034d91444023)
