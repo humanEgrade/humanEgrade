@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/ddcb1313-d0a3-4c20-9c94-c7989a04c8de)
+![image](https://github.com/user-attachments/assets/5bd328a7-9da6-4285-a02b-7a5775df9d1a)
 
 
 - you can call me sawako(mainly what im known as), or by yomei/anubis(c'links), nicknames okay too 
